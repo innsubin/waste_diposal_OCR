@@ -1,0 +1,1 @@
+# waste_diposal_OCR
